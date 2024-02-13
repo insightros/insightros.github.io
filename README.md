@@ -1,1 +1,1 @@
-inspired by byquangthanh
+inspired
